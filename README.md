@@ -1,5 +1,4 @@
-# my kadil
+# MY KADIL AND CABRAL HIHI
 ## favourite animal
-[pig] (https://kids.nationalgeographic.com/animals/mammals/facts/pig)
-- *uod*
-- 
+
+KOMIT TSINGES
