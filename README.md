@@ -1,6 +1,5 @@
-# ALDOUS
 ## MY DESCRIPTION
   ##my fav games
-  -mobile legends
-  -blackblast
+  *mobile legends*
+  *blackblast*
 
