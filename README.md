@@ -1,4 +1,6 @@
-# MY KADIL AND CABRAL HIHI
-## favourite animal
--*hipon*
-KOMIT TSINGES
+# ALDOUS
+## MY DESCRIPTION
+  ##my fav games
+  -mobile legends
+  -blackblast
+
